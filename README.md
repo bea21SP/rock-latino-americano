@@ -9,5 +9,5 @@ Além de valorizar a produção latino-americana e reduzir a predominância de u
 [Os 50-melhores-abuns-de-rock-latino-segundo-a-rolling-ston](https://rollingstone.com.br/noticia/os-50-melhores-abuns-de-rock-latino-segundo-a-rolling-stone/
 )
 [rock Brasil](https://www.historiadampb.com.br/rock-brasil)
-[Música como leitura de poder]([https://www.historiadampb.com.br/rock-brasil](https://diplomatique.org.br/a-politica-externa-dos-eua-e-a-musica-como-leitura-do-poder/))
+[Música como leitura de poder]([https://www.historiadampb.com.br/rock-brasil](https://diplomatique.org.br/a-politica-externa-dos-eua-e-a-musica-como-leitura-do-poder/)
 
